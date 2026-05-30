@@ -1,5 +1,3 @@
-![](https://komarev.com/ghpvc/?username=wendytorranceyuri&color=7c1411&label=friends!!)
+<p align="center"> <img width="1305" height="723" alt="Screenshot 2026-05-30 204104" src="https://github.com/user-attachments/assets/7608d8a4-1607-4635-aab3-6ed42f0ec7e6" />
 
-<p align="center"> ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-
-<p align="center"> <img width="450" height="400" alt="Screenshot 2026-02-18 125246" src="https://github.com/user-attachments/assets/dc9666ba-e2a3-426f-9432-3dc4cef0939d" />
+<p align="center"> https://moxxy.atabook.org/

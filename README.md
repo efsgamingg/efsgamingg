@@ -1,11 +1,14 @@
-<p align="center"> <img width="620" alt="hazard" src="https://github.com/user-attachments/assets/ddc3cd51-dbd0-4d1c-ad9a-070964cb3618" />
+<p align="center"> <img width="400" alt="rotatingstars" src="https://github.com/user-attachments/assets/7496cbe1-c7cd-4677-98c4-a7d37c76f03a" />
 
 
 
-<p align="center"> <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/a6738884-d939-454c-bd8a-c3915d57fd4b" />⠀ ⠀ ⠀ ⠀ <img width="99" height="56" alt="stamp (1)" src="https://github.com/user-attachments/assets/89b70cc3-b184-4773-8865-596bb76a1153" />⠀ ⠀ ⠀ ⠀ <img width="99" height="56" alt="stamp (2)" src="https://github.com/user-attachments/assets/6ec04894-713b-4aff-aaac-a833ffec7fc1" />
+
+<p align="center"> <img width="99" alt="tumblr_1f78f641e4bb90f4961c9566e97826ab_d4a864d5_100" src="https://github.com/user-attachments/assets/90bf634e-cd70-46a7-b064-3b7f45d3cedb" /> ㅤㅤㅤ ㅤㅤ<img width="99" alt="tumblr_a32f04574a02b722a0ca095e1c2eb011_06bae82c_100" src="https://github.com/user-attachments/assets/e339593e-3aae-4c14-9953-90a49bc03a2e" />
+
+
 
 ⠀ ⠀ ⠀ ⠀ ⠀
-<p align="center"> <img width="250" height="250" alt="efs-efsgaming" src="https://github.com/user-attachments/assets/e18c9738-90a9-4865-a719-02d6408d9a6f" />
+<p align="center"> <img width="436" alt="Untitled60_20260904010921" src="https://github.com/user-attachments/assets/cb066bc8-2516-4c4b-9569-517a4b175f8b" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=yellow) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=red) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  

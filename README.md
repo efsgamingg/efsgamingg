@@ -5,7 +5,7 @@
 
 <p align="center"> <img width="99" alt="tumblr_1f78f641e4bb90f4961c9566e97826ab_d4a864d5_100" src="https://github.com/user-attachments/assets/90bf634e-cd70-46a7-b064-3b7f45d3cedb" /> ㅤㅤㅤ ㅤㅤ<img width="99" alt="tumblr_a32f04574a02b722a0ca095e1c2eb011_06bae82c_100" src="https://github.com/user-attachments/assets/e339593e-3aae-4c14-9953-90a49bc03a2e" />
 
-
+<p align="center"> art creds : fishiistixx on twt
 
 ⠀ ⠀ ⠀ ⠀ ⠀
 <p align="center"> <img width="568" alt="Untitled67_20260912155847" src="https://github.com/user-attachments/assets/9a40ab63-9d7a-491f-984f-130378421439" />

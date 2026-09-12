@@ -8,7 +8,7 @@
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀
-<p align="center"> <img width="436" alt="Untitled60_20260904010921" src="https://github.com/user-attachments/assets/cb066bc8-2516-4c4b-9569-517a4b175f8b" />
+<p align="center"> <img width="568" alt="Untitled67_20260912155847" src="https://github.com/user-attachments/assets/9a40ab63-9d7a-491f-984f-130378421439" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=red) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
